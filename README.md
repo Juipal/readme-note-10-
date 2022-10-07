@@ -1,2 +1,2 @@
-# readme-note-10-
+# redmi-note-10-
 36
